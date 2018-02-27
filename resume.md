@@ -2,13 +2,12 @@
 ----
 >>> ### Jooyeon Ha
 550 Pittsford-Henrietta TL Rd.
-Pittsford, NY 14534
+Pittsford, NY 14534 .  
+585 . 530 . 9028 . 
+<jhabox@gmail.com> . 
 
-585 . 530 . 9028
+[www.jooyeonha.com](http://www.jooyeonha.com) . 
 
-<jhabox@gmail.com>
-
- [www.jooyeonha.com](http://www.jooyeonha.com)
 ----
  >**_Education_**
  >
