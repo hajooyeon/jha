@@ -1,6 +1,6 @@
-### Jooyeon Ha 
-
 ![jooyeon_logo](http://www.jooyeonha.com/wp-content/uploads/2017/04/cropped-jha_logoonly_white.png)
+
+### Jooyeon Ha 
 
 550 Pittsford-Henrietta TL Rd.
 Pittsford, NY 14534
