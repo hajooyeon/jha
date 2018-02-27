@@ -4,6 +4,6 @@
 
 <jhabox@gmail.com>
 
- [jooyeonha.com](http://www.jooyeonha.com)
+ [www.jooyeonha.com](http://www.jooyeonha.com)
  
  **_Education_**
