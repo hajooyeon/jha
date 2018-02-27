@@ -1,5 +1,6 @@
 ![jooyeon_logo](http://www.jooyeonha.com/wp-content/uploads/2017/04/jha_logoonly.png)
 >>> ### Jooyeon Ha
+
 -----
 550 Pittsford-Henrietta TL Rd.
 Pittsford, NY 14534
@@ -9,6 +10,7 @@ Pittsford, NY 14534
 <jhabox@gmail.com>
 
  [www.jooyeonha.com](http://www.jooyeonha.com)
+
 ------
  >**_Education_**
  >
