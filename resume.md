@@ -34,12 +34,12 @@ Axillary Block and AXIS Block, 2002
 * 9/13-12/13	   Adjunct Faculty, taught Digital Mixed Media in Illustration
 		Rochester Institute of Technology, Rochester, NY
 
-* 4/04-Present	   Web Designer/Director, www.taeyoulryu.com
+* 4/04-Present	   Web Designer/Director, [www.taeyoulryu.com](http://www.taeyoulryu.com)
 
 * 3/09-5/09		Adjunct Faculty, taught Introduction to After Effects in Medical Illustration
 		Rochester Institute of Technology, Rochester, NY
 	
-* 3/02-11/05		Web Designer/Director, www.wendellcastle.com
+* 3/02-11/05		Web Designer/Director, [www.wendellcastle.com](http://www.wendellcastle.com)
 	Film Editor, Music Rack, Wendell Castle, Rochester, NY, 2002
 
 * 8/02	Demo Reel Animator, Motion Graphic Designer, Safe Passage International, Rochester, NY
