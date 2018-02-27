@@ -1,8 +1,6 @@
 ![jooyeon_logo](http://www.jooyeonha.com/wp-content/uploads/2017/04/jha_logoonly.png)
 >>> ### Jooyeon Ha
-
 -----
-
 550 Pittsford-Henrietta TL Rd.
 Pittsford, NY 14534
 
@@ -11,9 +9,7 @@ Pittsford, NY 14534
 <jhabox@gmail.com>
 
  [www.jooyeonha.com](http://www.jooyeonha.com)
-
 ------
-
  >**_Education_**
  >
  >* 3/12-5/12		_Business Practices_ in Medical Illustration, Spring Quarter,2012 Rochester Institute of Technology, Rochester, NY
