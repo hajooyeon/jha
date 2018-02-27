@@ -1,5 +1,6 @@
 ![jooyeon_logo](http://www.jooyeonha.com/wp-content/uploads/2017/04/jha_logoonly.png)
-#### [www.jooyeonha.com](http://www.jooyeonha.com)
+
+> [www.jooyeonha.com](http://www.jooyeonha.com)
 --
 ### Jooyeon Ha
 >
