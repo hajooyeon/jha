@@ -1,4 +1,4 @@
-![jooyeon_logo](http://www.jooyeonha.com/wp-content/uploads/2017/04/cropped-jha_logoonly_white.png)
+![jooyeon_logo](http://www.jooyeonha.com/wp-content/uploads/2017/04/jha_logoonly.png)
 
 ### Jooyeon Ha 
 
