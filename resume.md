@@ -11,14 +11,11 @@ Pittsford, NY 14534
 >
  <jhabox@gmail.com>
 >
- >**_Education_**
- >
- >* 3/12-5/12		_Business Practices_ in Medical Illustration, Spring Quarter,2012 Rochester Institute of Technology, Rochester, NY
- >
- >* 9/09-2/10		_Human Gross Anatomy I,II_ in Medical Illustration, Fall/Winter Quarters, 2009
+### **_Education_**
+- 3/12-5/12		_Business Practices_ in Medical Illustration, Spring Quarter,2012 Rochester Institute of Technology, Rochester, NY
+- 9/09-2/10		_Human Gross Anatomy I,II_ in Medical Illustration, Fall/Winter Quarters, 2009
 				Rochester Institute of Technology, Rochester, NY
- >			
- >* 6/09-7/09		_FLC (Faculty Learning Community) Adjunct Summer_, 2009
+- 6/09-7/09		_FLC (Faculty Learning Community) Adjunct Summer_, 2009
 				Rochester Institute of Technology, Rochester, NY
  >
  >* 9/98-5/00		MFA in Computer Graphics Design, 2000 
