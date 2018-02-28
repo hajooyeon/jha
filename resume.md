@@ -46,4 +46,19 @@ Axillary Block and AXIS Block, 2002
 
 * 3/01-7/01	Children’s science book illustrator, Neo/SCI, Rochester, NY
 
+### **_Books and DVDs_**
+	
+*	Illustrator/ Videographer, Ultrasound Guided Regional Anesthesia and Pain      Medicine, The second edition, PE Bigeleisen and J Ha, LWW, 2016
+*	Micro-architecture Animation, Sliced Up Cadaver, 
+	PE Bigeleisen and J Ha, DVD,   Sleeping Gorilla Studios, 2011
+*	Illustrator/ Videographer, Ultrasound-Guided Regional Anesthesia and Pa Management, 
+	PE Bigeleisen and J Ha, LWW, 2009
+*	Section Editor, Ultrasound Guided Peripheral Nerve Blocks, 
+   in Peripheral Nerve Blocks, 2nd edition, Chelly J, LWW, 2008
+*	Virtual Bronchoscopy, PE Bigeleisen and J Ha, DVD, 
+   Sleeping Gorilla Studios, 2008
+*	Ultrasound Guided Brachial Plexus Block, PE Bigeleisen and J Ha, DVD,  
+   Sleeping Gorilla Studios, 2006
+
+
  
